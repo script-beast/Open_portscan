@@ -31,6 +31,6 @@ There also a pdf file of common ports is given.
 
 ---------------------------------------------------------------------------------------
 
-Thanks for Downloading!!!!!!!!!!!!1 
+Thanks for Downloading!!!!!!!!!!!!
 Hope it was useful.
 Follow for more scripts .............
